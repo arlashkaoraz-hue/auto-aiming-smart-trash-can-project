@@ -1,0 +1,1 @@
+# auto-aiming-smart-trash-can-project
